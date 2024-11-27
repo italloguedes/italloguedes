@@ -43,6 +43,7 @@ Sou um **desenvolvedor em transição de carreira** e atualmente estou focado em
 ## 🌍 Me Encontre em
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/italloguedes)
+- 📸 [Instagram](https://instagram.com/italloguedes) 
 - 📫 Email: [italo167@yahoo.com.br](mailto:italo167@yahoo.com.br)
 
 ---
